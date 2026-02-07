@@ -10,3 +10,4 @@ zampa1
 xamp12
 boka
 bokluk
+z
