@@ -12,7 +12,7 @@ bokazza3d1
 za
 bokluk
 z1a
-a
+a1
 1
 2
 31
