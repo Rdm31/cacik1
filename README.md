@@ -3,7 +3,7 @@ cacik
 cacik2
 cacik3
 cacik 4
-cacik 5 son
+cacik 5 sonza
 cacik6a
 cacik7saz
 zampa1
