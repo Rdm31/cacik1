@@ -9,6 +9,6 @@ cacik7saz
 zampa1
 xamp12zz
 bokaz
-
+za
 bokluk
 z
