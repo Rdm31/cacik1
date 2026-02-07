@@ -5,7 +5,7 @@ cacik3
 cacik 4
 cacik 5 son
 cacik6
-cacik7
+cacik7s
 zampa1
 xamp12
 bok
