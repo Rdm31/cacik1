@@ -5,7 +5,7 @@ cacik3
 cacik 4
 cacik 5 son
 cacik6a
-cacik7sa
+cacik7saz
 zampa1
 xamp12z
 bokaz
