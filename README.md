@@ -11,4 +11,4 @@ xamp12zz1
 bokazza
 za
 bokluk
-z
+z1
