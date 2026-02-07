@@ -6,7 +6,7 @@ cacik 4
 cacik 5 sonza
 cacik6a321
 cacik7saz
-zampa1
+zampa11
 xamp12zz1
 bokazza
 za
