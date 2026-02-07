@@ -7,7 +7,7 @@ cacik 5 son
 cacik6a
 cacik7saz
 zampa1
-xamp12z
+xamp12zz
 bokaz
 
 bokluk
