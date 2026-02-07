@@ -9,7 +9,7 @@ cacik7sazaz1
 zampa112
 xamp12zz1aa11
 bokazza3d1
-za
+za2
 bokluk1
 z1a
 a11
