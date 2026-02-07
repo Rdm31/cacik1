@@ -8,7 +8,7 @@ cacik6a32111
 cacik7sazaz1
 zampa112
 xamp12zz1aa1111
-bokazza3d1
+bokazza3d13
 za2
 bokluk11
 z1a2
