@@ -7,7 +7,7 @@ cacik 5 sonza2
 cacik6a32111
 cacik7sazaz1
 zampa112
-xamp12zz1aa111
+xamp12zz1aa1111
 bokazza3d1
 za2
 bokluk11
