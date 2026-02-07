@@ -6,7 +6,7 @@ cacik 41
 cacik 5 sonza2
 cacik6a3211
 cacik7sazaz1
-zampa11
+zampa112
 xamp12zz1aa11
 bokazza3d1
 za
