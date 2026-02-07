@@ -8,6 +8,7 @@ cacik6
 cacik7sa
 zampa1
 xamp12z
-boka
+bokaz
+
 bokluk
 z
