@@ -8,5 +8,5 @@ cacik6
 cacik7s
 zampa1
 xamp12
-bok
+boka
 bokluk
