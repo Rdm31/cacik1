@@ -10,7 +10,7 @@ zampa112
 xamp12zz1aa1111
 bokazza3d13
 za22
-bokluk11
+bokluk112
 z1a2
 a11
 1
